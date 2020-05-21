@@ -1,0 +1,24 @@
+ 一段时间没用为知写日记了，
+ 结果今天登陆后一看，
+![image.png](https://upload-images.jianshu.io/upload_images/6641787-7a9eb942bbbdae51.png?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
+噫~什么时候夜间模式都要付费使用了。。。
+***
+好吧我就说这么多，
+接下来就是近几天的成绩，
+首先是钢琴块
+![image.png](https://upload-images.jianshu.io/upload_images/6641787-140faac328d27e2f.png?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
+花了我不少时间。。
+***
+然后是cytus
+![image.png](https://upload-images.jianshu.io/upload_images/6641787-c521443322578e69.png?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
+最近cy有了不小的进步
+***
+最后是deemo
+![image.png](https://upload-images.jianshu.io/upload_images/6641787-27f09c3dab813844.png?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
+233333就这么多
+***
+上午还是阳光明媚，
+中午电闪雷鸣，
+下午狂风暴雨，
+拍到一只蜗牛
+![image.jpeg](https://upload-images.jianshu.io/upload_images/6641787-268b8bd7e0099818.jpeg?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
