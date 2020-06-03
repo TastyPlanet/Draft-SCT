@@ -1,1 +1,0 @@
-下了一天雨，不开心![](https://tb2.bdstatic.com/tb/editor/images/face/i_f16.png?t=20140803)
